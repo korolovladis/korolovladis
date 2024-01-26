@@ -19,3 +19,4 @@ Thriving in high-intensity environments, I am always prepared to go the extra mi
 If you're in search of an individual passionate about cryptocurrencies, well-versed in validator node operations, and dedicated to delivering results, I believe my skills can significantly contribute to your projects. I'm eager to discuss how my background aligns with your needs and how I can contribute to the success of your endeavors.
 
 Best regards, Korolov Vladislav
+📧 Email: Korolov Vladislav
